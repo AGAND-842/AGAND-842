@@ -6,7 +6,6 @@
 
 - 📫 How to reach me **t.me/AGAND842**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
